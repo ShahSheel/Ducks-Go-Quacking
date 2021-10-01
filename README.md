@@ -2,3 +2,6 @@
 ![test](https://github.com/ShahSheel/Ducks-Go-Quacking/blob/main/duck.jpg)
 
 
+![test](https://github.com/ShahSheel/Ducks-Go-Quacking/blob/main/duck.jpeg)
+
+
