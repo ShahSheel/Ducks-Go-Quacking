@@ -13,3 +13,5 @@
 ![Cute baby duck sitting down](https://user-images.githubusercontent.com/77732259/138533650-cec16658-b50d-47c0-95ca-e2015041ecf3.jpg)
 
 ![beautiful white duck with her cute little home sweet home](https://user-images.githubusercontent.com/77732259/138533645-f4530f0a-4454-4900-971b-404522f650a1.jpg)
+![cute-duck-wallpaper-11](https://user-images.githubusercontent.com/68775447/138573172-9b88a815-7cfc-4053-8074-179e7942fc7a.jpg)
+![1003613160-cute-duck-224466](https://user-images.githubusercontent.com/68775447/138573176-426a6b38-6ecd-462c-a001-6120652389d1.jpg)
